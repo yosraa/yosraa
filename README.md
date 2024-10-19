@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **yosraaddali@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1KBjI4ce98qoVfiGppffb3rqrpuqFm2IR/view?usp=share_link](https://drive.google.com/file/d/1KBjI4ce98qoVfiGppffb3rqrpuqFm2IR/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ckjms-wkvaecr5FsA6oWbOx8IZ1_4dtF/view?usp=sharing](https://drive.google.com/file/d/1ckjms-wkvaecr5FsA6oWbOx8IZ1_4dtF/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny😅**
 - 💬 Ask me about anything [here](https://github.com/yosraa/yosraa/issues)
